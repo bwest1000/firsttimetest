@@ -2,4 +2,5 @@
 
 ##what am I doing
 
-The directions are empty and vague
+bitch betta have my money
+pay me whatcha owe me
